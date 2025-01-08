@@ -1,3 +1,0 @@
-# ProjectSlims
-.
-WOI NGES
